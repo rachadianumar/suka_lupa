@@ -1,8 +1,8 @@
-Assalamualaikum
+Assalamualaikum Semua
 
 Selamat Pagi
 
 BR
-Umar
+Iwan
 
 changes from sql script
