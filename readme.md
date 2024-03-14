@@ -1,4 +1,4 @@
-Assalamualaikum all
+Assalamualaikum Semua
 
 Selamat Pagi
 
